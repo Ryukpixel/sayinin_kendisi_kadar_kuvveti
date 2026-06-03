@@ -1,0 +1,1 @@
+# sayinin_kendisi_kadar_kuvveti
